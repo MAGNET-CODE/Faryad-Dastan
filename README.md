@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-**Faryad Dastan** 
+**Hi 👋, I'm Faryad Dastan** 
 
 Here are some ideas to get you started:
 
